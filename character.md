@@ -1,0 +1,1 @@
+A man was in his lab, while he was working. He was struck by lighting. He got extraordinary powers, he got super speed. It was very hard for him to control them and he didn't know how to use them. He saw a bank being robbed and he knew he had to help. 
